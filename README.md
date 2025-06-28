@@ -2,9 +2,9 @@
 
 ![](https://dividers.crd.co/assets/images/gallery05/b46872bc.png?v=05d33f91)
 
-i d<sub>9</sub> n<sub>9</sub>t have <sub>9</sub>ther res<sub>9</sub>urces regarding inf<sub>9</sub>rmati<sub>9</sub>n a<sub>6</sub><sub>9</sub>ut me, h<sub>9</sub>wever it is in the w<sub>9</sub>rks. i will update this page whenever i see fit.
+if y<sub>9</sub>u are interested, leave me a message <sub>9</sub>n my ata<sub>6</sub><sub>9</sub><sub>9</sub>k. i welc<sub>9</sub>me all questi<sub>9</sub>ns, queries and c<sub>9</sub>nversati<sub>9</sub>ns with <sub>9</sub>pen arms.
 
-f<sub>9</sub>r the time <sub>6</sub>eing, i am very <sub>9</sub>penly queer and supp<sub>9</sub>rt many identities h<sub>9</sub>wever i am n<sub>9</sub>t radically inclusive. i d<sub>9</sub> n<sub>9</sub>t <sub>6</sub>elieve in g<sub>9</sub><sub>9</sub>d faith identities and trans-race <sub>9</sub>r trans-dis<sub>9</sub>rder. i have n<sub>9</sub> interest in arguing <sub>9</sub>ver this t<sub>9</sub>pic.
+that aside, i am very <sub>9</sub>penly queer and supp<sub>9</sub>rt many identities, i h<sub>9</sub>wever, d<sub>9</sub> n<sub>9</sub>t align with "radqueer" ide<sub>9</sub>l<sub>9</sub>gy. i d<sub>9</sub> n<sub>9</sub>t <sub>6</sub>elieve in m<sub>9</sub>st end<sub>9</sub>genic systems <sub>6</sub>ut i will n<sub>9</sub>t reject their experiences and i will n<sub>9</sub>t participate in fakeclaiming. i am staunchly against trans-race, trans-dis<sub>9</sub>rder and similar "identities". i have n<sub>9</sub> interest in arguing <sub>9</sub>ver this t<sub>9</sub>pic.
 
 my taste in music is super<sub>6</sub> and i will enc<sub>9</sub>urage y<sub>9</sub>u t<sub>9</sub> expand y<sub>9</sub>ur h<sub>9</sub>riz<sub>9</sub>ns. industrial techn<sub>9</sub> has piqued my interest and i am happy t<sub>9</sub> share artists with y<sub>9</sub>u. with that <sub>6</sub>eing said, supp<sub>9</sub>rt "aktivehate" and "X-RX". 
 
